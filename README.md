@@ -1,0 +1,1 @@
+# MurlocTranslator.github.io
